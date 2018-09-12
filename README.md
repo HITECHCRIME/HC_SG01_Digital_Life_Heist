@@ -1,7 +1,11 @@
 # HC_SG01_Digital_Life_Heist (Prod. HRTLS)
 Hitech Crime Single 'Digital Life Heist'
 
-**Music Video:** Digital life backup bank robbery.
+# MUSIC VIDEO
+
+Digital life backup bank robbery.
+
+# LYRICS
 
 INTRO
 
