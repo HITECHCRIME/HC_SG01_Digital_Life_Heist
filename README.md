@@ -3,26 +3,42 @@ Hitech Crime Single 'Digital Life Heist'
 
 **Music Video:** Digital life backup bank robbery.
 
-**[INTRO]**
+INTRO
+
 Alarm
+
 hitech crime detected 
+
 / glass breaks / feet thudding /
+
 sir we got a data breach someone's in our system
+
 shut it down shut it down now
+
 mothnode access granted
+
 raz raz raz raz jedziemy z tym koksem yo
+
 come on HRTLSZ
+
 ---
-**[CHORUS 1]**
-9 nadlatuję z duchem czasu
-11 aye aye aye aye to jest digital life heist (ou) 
-6 digital life heist (ej)
+
+**CHORUS**
+
+nadlatuję z duchem czasu
+
+aye aye aye aye to jest digital life heist (ou) 
+
+digital life heist (ej)
 
 privkey na blacie, numer swój odsłoń, 
+
 tyle hashów na kasę, a nie zmienię cię w cyfrę
 
-[VERSE 1]
+**VERSE 1**
+
 halo cześć jestem tutaj kurwa suko żeby cię zjeść
+
 ciągnij moje dane suko
 kable są podpięte
 niby ze mnie skurwiel noob
