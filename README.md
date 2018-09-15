@@ -48,15 +48,19 @@ ale cóż - soc-hack to potęga w końcu dasz mi wszystko
 
 nie ma czasu życia trwonic, (8)
 to nie bajka, to jebana kalka, (10)
-twoja kopia snu jest moja, kradnę zycia standard (12)
+twoja kopia jest już moja, kradnę zycia standard (12)
 
 czelusc hej - nie uciekniesz wiem (8)
 
 czipy na padach bez taga napadam (11)
 resecik na płycie odbiera mi tlen (11)
 
-serwer to matka, ta prawda jest twarda, -- (ta prawda tak twarda)
-null promise dla ciebie, zysk to mój sen
+serwer nie matka, ta prawda jest twarda, -- (ta prawda tak twarda)
+presecik na życie, no dam ci ten sen 
+
+
+
+sen full 
 jedna obietnica ale może dam ci jeden lepszy sen 
 
 podzespoly  (11)
