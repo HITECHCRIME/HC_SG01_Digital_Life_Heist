@@ -52,7 +52,9 @@ czelusc czesc nie uciekniesz - wiem
 czipy na padach bez taga napadam
 resecik na płycie odbiera mi tlen
 serwer to matka, nawet jak twarda
-moj tech to twoj przyszly sen aye
+moj tech - to twoj przyszly sen aye
+moj tech - odda ci moj sen
+da ci lepszy sen
 
 snatch podzespoly i daje ci tlen
 Daje ci dalszy sen
