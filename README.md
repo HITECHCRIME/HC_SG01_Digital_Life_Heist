@@ -30,27 +30,35 @@ come on HRTLSZ
 **CHORUS**
 
 nadlatuję z duchem czasu
-
 aye aye aye aye to jest digital life heist (ou) 
-
 digital life heist (ej)
-
 privkey na blacie, numer swój odsłoń, 
-
 tyle hashów na kasę, a nie zmienię cię w cyfrę
 
 **VERSE 1**
 
 halo cześć jestem tutaj kurwa suko żeby cię zjeść
-
-miły chłopak z wnętrza, mówią - chyba skończyło się smutno
+miły chłopak z wnętrza, mówią - chyba skończył się na smutno
 kable już podpięte ciągnij moje dane 
 taki ze mnie skurwiel noob
 jak nie alfa to omega, ale cóż
 soc-hack to potęga w końcu dasz mi wszystko
 
-to wszystko smutno
-smutno
+nie ma czasu życia trwonic,
+to nie bajka, to jebana kalka, 
+twoja kopia moja, kradnę zycia standard
+
+czelusc czesc nie uciekniesz - wiem
+czipy na padach bez taga napadam
+resecik na płycie odbiera mi tlen
+serwer to matka, nawet jak twarda
+moj tech to twoj przyszly sen aye
+
+snatch podzespoly i daje ci tlen
+Daje ci dalszy sen
+Daje ci lepszy sen
+That’s how we ice - high tech low life
+High tech low life high tech low life
 
 blask ekranu już nie boli 
 mała nie wiem co mi to zrobi, wszystkie obawy kaput, (out)
@@ -69,20 +77,9 @@ moj tech, twoj przyszly sen 7
 robię snatch 
 daje ci ten tlen 8
 
-nie ma czasu życia trwonic,
 
-to nie bajka, to jebana kalka, 
-kopia moja, kradnę zycia standard
 
-Czelusc czesc nie uciekniesz - wiem
-Czipy na padach bez taga napadam
-Reset na płycie serwer matka twarda
-Moj tech to twoj przyszly sen aye
-Snatch podzespoly i daje ci tlen
-Daje ci dalszy sen
-Daje ci lepszy sen
-That’s how we ice - high tech low life
-High tech low life high tech low life
+
 
 czuj się zagrożona żarem 8
 
