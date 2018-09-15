@@ -38,27 +38,36 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę
 **VERSE 1**
 
 halo cześć jestem tutaj kurwa suko - żeby cię zjeść, 
+
 miły chłopak z wnętrzem mówią 
+
 chyba skończył się na smutno 
+
 kable już podpięte 
-ciągnij moją treść (moje dane)
+
+ciągnij moją treść 
 
 taki ze mnie skurwiel noob, jak nie dane to ten klucz - 
+
 ale cóż - soc-hack to potęga w końcu dasz mi wszystko
 
 nie ma czasu życia trwonic, (8)
+
 to nie bajka, to jebana kalka, (10)
+
 twoja kopia jest już moja, kradnę zycia standard (12)
 
 czelusc hej - nie uciekniesz wiem (8)
 
 czipy na padach bez taga napadam (11)
+
 resecik na płycie odbiera mi tlen (11)
 
-serwer nie matka, ta prawda jest twarda, -- (ta prawda tak twarda)
+serwer nie matka, ta prawda jest twarda,
+
 presecik na życie, no dam ci ten sen 
 
-
+-- (ta prawda tak twarda)
 
 sen full 
 jedna obietnica ale może dam ci jeden lepszy sen 
@@ -67,6 +76,7 @@ podzespoly  (11)
 
 dam ci ten lepszy sen (11)
 
+(moje dane)
 
 moj tech - to twoj przyszly sen aye
 moj tech - odda ci moj sen
