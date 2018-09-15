@@ -87,7 +87,7 @@ czuj się zagrożona żarem 8
 
 Daje ci sen, daje ci lepszy sen
 
-T pass na sześć, 
+pass na sześć, 
 Nie uciekniesz ja to wiem 7
 
 **[VERSE 1]** (slow skandujący scream) 
