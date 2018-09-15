@@ -42,10 +42,10 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę
 **VERSE 1**
 
 halo cześć jestem tutaj kurwa suko żeby cię zjeść
-miły chłopak z wnętrza, mówią - chyba skończyło się smutno
 
+miły chłopak z wnętrza, mówią - chyba skończyło się smutno
+kable już podpięte ciągnij moje dane 
 taki ze mnie skurwiel noob
-kable są podpięte ciągnij moje dane suko
 jak nie alfa to omega, ale cóż
 soc-hack to potęga w końcu dasz mi wszystko
 
@@ -68,6 +68,7 @@ nie uciekniesz wiesz 5
 moj tech, twoj przyszly sen 7
 robię snatch 
 daje ci ten tlen 8
+
 nie ma czasu życia trwonic,
 
 to nie bajka, to jebana kalka, 
@@ -75,7 +76,7 @@ kopia moja, kradnę zycia standard
 
 Czelusc czesc nie uciekniesz - wiem
 Czipy na padach bez taga napadam
-Reset na płycie matce twarda
+Reset na płycie serwer matka twarda
 Moj tech to twoj przyszly sen aye
 Snatch podzespoly i daje ci tlen
 Daje ci dalszy sen
