@@ -37,26 +37,39 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę
 
 **VERSE 1**
 
-halo cześć jestem tutaj kurwa suko żeby cię zjeść
-miły chłopak z wnętrza, mówią - chyba skończył się na smutno
-kable już podpięte ciągnij moje dane 
-taki ze mnie skurwiel noob
-jak nie alfa to omega, ale cóż
-soc-hack to potęga w końcu dasz mi wszystko
+halo cześć jestem tutaj kurwa suko - żeby cię zjeść, 
+miły chłopak z wnętrzem mówią 
+chyba skończył się na smutno 
+kable już podpięte 
+ciągnij moją treść (moje dane)
 
-nie ma czasu życia trwonic,
-to nie bajka, to jebana kalka, 
-twoja kopia moja, kradnę zycia standard
+taki ze mnie skurwiel noob, jak nie dane to ten klucz - 
+ale cóż - soc-hack to potęga w końcu dasz mi wszystko
 
-czelusc czesc nie uciekniesz - wiem
-czipy na padach bez taga napadam
-resecik na płycie odbiera mi tlen
-serwer to matka, nawet jak twarda
+nie ma czasu życia trwonic, (8)
+to nie bajka, to jebana kalka, (10)
+twoja kopia snu jest moja, kradnę zycia standard (12)
+
+czelusc hej - nie uciekniesz wiem (8)
+
+czipy na padach bez taga napadam (11)
+resecik na płycie odbiera mi tlen (11)
+
+serwer to matka, ta prawda jest twarda, -- (ta prawda tak twarda)
+null promise dla ciebie, zysk to mój sen
+jedna obietnica ale może dam ci jeden lepszy sen 
+
+podzespoly  (11)
+
+dam ci ten lepszy sen (11)
+
+
 moj tech - to twoj przyszly sen aye
 moj tech - odda ci moj sen
-da ci lepszy sen
+dam ci lepszy sen
 
-snatch podzespoly i daje ci tlen
+
+ i daje ci tlen
 Daje ci dalszy sen
 Daje ci lepszy sen
 That’s how we ice - high tech low life
