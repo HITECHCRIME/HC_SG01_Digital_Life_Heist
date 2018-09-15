@@ -42,20 +42,20 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę
 **VERSE 1**
 
 halo cześć jestem tutaj kurwa suko żeby cię zjeść
-miły chłopak z wnętrza, mówią - chyba skończyło się to wszystko smutno
-smutno
+miły chłopak z wnętrza, mówią - chyba skończyło się smutno
 
 taki ze mnie skurwiel noob
-kable są podpięte - ciągnij moje dane suko 
+kable są podpięte ciągnij moje dane suko
 jak nie alfa to omega, ale cóż
-soc-hack to potęga w końcu dasz mi wszystko 
+soc-hack to potęga w końcu dasz mi wszystko
 
-prosto z wnętrza miły chłopak
+to wszystko smutno
+smutno
 
 blask ekranu już nie boli 
-mała nie wiem co mi to zrobi, wszystkie obawy kaput, 
+mała nie wiem co mi to zrobi, wszystkie obawy kaput, (out)
 dużo da mi soc-hack, taki ze mnie skurwiel noob
-ciągnij moje dane suko, kable podłączone są i już
+ciągnij moje dane suko, kable podłączone są i już (więc now)
 
 nie chcesz się kompletnie sprzedać
 skończył się na smutno
