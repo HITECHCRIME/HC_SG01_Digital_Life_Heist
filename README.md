@@ -44,10 +44,14 @@ ciągnij moją treść ssak
 nie mam danych wpiszę klucz
 taki ze mnie skurwiel noob, ja  
 miły chłopak z wnętrza mówią, już 
-chyba smutno z tym skończyłem 
-soc-hack - to potęga 
+chyba z tym skończyłem, to potęga soc-hack  
 przecież w końcu spłacisz dług
 wtedy dasz mi wszystko
+
+dziś mi służ, spłacisz dzisiaj cały dług
+zedrzyj całą warstwę z życia co mnie - wkurwia
+default już mnie nie pobudza
+prę do przodu póki mam na stronie ruch - aye
 
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
 (2) żeby cię mieć, 
