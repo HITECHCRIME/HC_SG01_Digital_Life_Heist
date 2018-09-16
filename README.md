@@ -69,7 +69,7 @@ default już mnie nie pobudza aye -
 
 prę do przodu póki mam na bazie danych ruch - 
 
-danych ruch
+mam na bazie danych ruch
 
 nie ma czasu życia trwonic
 
@@ -89,7 +89,7 @@ serwer nie matka, ta prawda jest twarda,
 
 presecik na życie, więc dam ci ten sen
 
-dam ci ten sen
+dam ci ten sen x 3
 
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
 (2) żeby cię mieć, 
