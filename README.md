@@ -67,25 +67,27 @@ default już mnie nie pobudza aye
 
 prę do przodu póki mam na bazie danych ruch - 
 
-(10) nie ma czasu życia trwonic, (8)
+danych ruch
 
-(11) to nie bajka, to jebana kalka, (10)
+nie ma czasu życia trwonic
 
-(12) twoja kopia (jest już moja), kradnę zycia standard (12)
+to nie bajka to jebana kalka
 
-(13) czelusc hej - nie uciekniesz wiem (8)
+twoja kopia jest już moja, kradnę zycia standard
 
-(14) mój tech to twój przyszły sen
+czelusc hej - nie uciekniesz wiem
 
-czipy na padach bez taga napadam (11)
+mój tech to twój przyszły sen
 
-resecik na płycie odbiera mi tlen (11)
+czipy na padach bez taga napadam
+
+resecik na płycie odbiera mi tlen
 
 serwer nie matka, ta prawda jest twarda,
 
 presecik na życie, więc dam ci ten sen
 
-
+dam ci ten sen
 
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
 (2) żeby cię mieć, 
