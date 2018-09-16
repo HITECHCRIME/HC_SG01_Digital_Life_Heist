@@ -59,11 +59,13 @@ przecież w końcu spłacisz dług
 
 wtedy dasz mi wszystko
 
+---------
+
 dziś mi służ, spłacisz dzisiaj cały dług
 
 zedrzyj całą warstwę z życia co mnie - wkurwiasz
 
-default już mnie nie pobudza aye
+default już mnie nie pobudza aye - 
 
 prę do przodu póki mam na bazie danych ruch - 
 
