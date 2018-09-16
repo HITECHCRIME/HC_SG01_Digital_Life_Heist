@@ -37,15 +37,17 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 **VERSE 1**
 
-halo - cześć - jestem kurwa suko żeby cię tu zjeść 
-kable już podpięte access z pętli, ciągnij moją treść
+halo - cześć - jestem tutaj kurwa suko żeby cię zjeść 
 
-
-taki ze mnie skurwiel noob, nie mam danych wpiszę klucz 
-miły chłopak z wnętrza mówią, chyba skończyło się smutno
-
-soc-hack to potęga przecież w końcu spłacisz dług
-dasz mi wszystko
+kable już podpięte access z pętli 
+ciągnij treść -
+taki ze mnie skurwiel noob, 
+nie mam danych wpiszę klucz 
+miły chłopak z wnętrza mówią, 
+chyba się skończyłem smutno
+soc-hack to potęga 
+przecież w końcu spłacisz dług
+wtedy dasz mi wszystko
 dasz mi wszystko 
 
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
