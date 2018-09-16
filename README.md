@@ -30,14 +30,18 @@ come on HRTLSZ
 **CHORUS**
 
 nadlatuję z duchem czasu
+
 aye aye aye aye to jest digital life heist (ou) 
+
 digital life heist (ej)
+
 privkey na blacie, numer swój odsłoń, (10)
+
 tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 **VERSE 1**
 
-halo - cześć - jestem tutaj kurwa suko żeby cię zjeść 
+halo - cześć - jestem tutaj kurwa suko żeby cię zjeść  ----
 
 kable już podpięte access z pętli mam
 
@@ -56,9 +60,12 @@ przecież w końcu spłacisz dług
 wtedy dasz mi wszystko
 
 dziś mi służ, spłacisz dzisiaj cały dług
-zedrzyj całą warstwę z życia co mnie - wkurwia
-default już mnie nie pobudza
-prę do przodu póki mam na stronie ruch - aye
+
+zedrzyj całą warstwę z życia co mnie - wkurwiasz
+
+default już mnie nie pobudza aye
+
+prę do przodu póki mam na bazie danych ruch - 
 
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
 (2) żeby cię mieć, 
