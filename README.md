@@ -39,13 +39,20 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 halo - cześć - jestem tutaj kurwa suko żeby cię zjeść 
 
-kable już podpięte access z pętli mam,
+kable już podpięte access z pętli mam
+
 ciągnij moją treść ssak
+
 nie mam danych wpiszę klucz
+
 taki ze mnie skurwiel noob, ja  
+
 miły chłopak z wnętrza mówią, już 
+
 chyba z tym skończyłem, to potęga soc-hack  
+
 przecież w końcu spłacisz dług
+
 wtedy dasz mi wszystko
 
 dziś mi służ, spłacisz dzisiaj cały dług
