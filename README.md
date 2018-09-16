@@ -67,6 +67,26 @@ default już mnie nie pobudza aye
 
 prę do przodu póki mam na bazie danych ruch - 
 
+(10) nie ma czasu życia trwonic, (8)
+
+(11) to nie bajka, to jebana kalka, (10)
+
+(12) twoja kopia (jest już moja), kradnę zycia standard (12)
+
+(13) czelusc hej - nie uciekniesz wiem (8)
+
+(14) mój tech to twój przyszły sen
+
+czipy na padach bez taga napadam (11)
+
+resecik na płycie odbiera mi tlen (11)
+
+serwer nie matka, ta prawda jest twarda,
+
+presecik na życie, więc dam ci ten sen
+
+
+
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
 (2) żeby cię mieć, 
 dziś mi służ, spłacisz dzisiaj cały dług (14)
@@ -78,18 +98,6 @@ dziś mi służ, spłacisz dzisiaj cały dług (14)
 (7) nie mam danych wpiszę klucz -
 (8) kable są podpięte na pętlach, ciągnij moją treść i już
 (9) soc-hack to potęga (przecież) w końcu dasz mi wszystko (13)
-
-(10) nie ma czasu życia trwonic, (8)
-(11) to nie bajka, to jebana kalka, (10)
-(12) twoja kopia (jest już moja), kradnę zycia standard (12)
-
-(13) czelusc hej - nie uciekniesz wiem (8)
-(14) mój tech to twój przyszły sen
-
-czipy na padach bez taga napadam (11)
-resecik na płycie odbiera mi tlen (11)
-serwer nie matka, ta prawda jest twarda,
-presecik na życie, więc dam ci ten sen
 
 -- (ta prawda tak twarda)
 
