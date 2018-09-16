@@ -32,45 +32,51 @@ come on HRTLSZ
 nadlatuję z duchem czasu
 aye aye aye aye to jest digital life heist (ou) 
 digital life heist (ej)
-privkey na blacie, numer swój odsłoń, 
-tyle hashów na kasę, a nie zmienię cię w cyfrę
+privkey na blacie, numer swój odsłoń, (10)
+tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 **VERSE 1**
 
-halo cześć jestem tutaj kurwa suko - żeby cię zjeść, 
+halo - cześć - jestem kurwa suko żeby cię tu zjeść 
+kable już podpięte access z pętli, ciągnij moją treść
 
-miły chłopak z wnętrzem mówią 
 
-chyba skończył się na smutno 
+taki ze mnie skurwiel noob, nie mam danych wpiszę klucz 
+miły chłopak z wnętrza mówią, chyba skończyło się smutno
 
-kable już podpięte 
+soc-hack to potęga przecież w końcu spłacisz dług
+dasz mi wszystko
+dasz mi wszystko 
 
-ciągnij moją treść 
+(1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
+(2) żeby cię mieć, 
+dziś mi służ, spłacisz dzisiaj cały dług (14)
+(3) zedrzyj całą warstwę z życia, spłać iluzji dług (14)
+(4) deafult już mnie nie pobudza taki ze mnie skurwiel noob (15)
 
-taki ze mnie skurwiel noob, jak nie dane to ten klucz - 
+(5) miły chłopak z wnętrzem mówią, 
+(6) chyba skończył się na smutno (smutno), przyj do przodu póki masz na stronie ruch
+(7) nie mam danych wpiszę klucz -
+(8) kable są podpięte na pętlach, ciągnij moją treść i już
+(9) soc-hack to potęga (przecież) w końcu dasz mi wszystko (13)
 
-ale cóż - soc-hack to potęga w końcu dasz mi wszystko
+(10) nie ma czasu życia trwonic, (8)
+(11) to nie bajka, to jebana kalka, (10)
+(12) twoja kopia (jest już moja), kradnę zycia standard (12)
 
-nie ma czasu życia trwonic, (8)
-
-to nie bajka, to jebana kalka, (10)
-
-twoja kopia jest już moja, kradnę zycia standard (12)
-
-czelusc hej - nie uciekniesz wiem (8)
+(13) czelusc hej - nie uciekniesz wiem (8)
+(14) mój tech to twój przyszły sen
 
 czipy na padach bez taga napadam (11)
-
 resecik na płycie odbiera mi tlen (11)
-
 serwer nie matka, ta prawda jest twarda,
-
-presecik na życie, no dam ci ten sen 
+presecik na życie, więc dam ci ten sen
 
 -- (ta prawda tak twarda)
 
 sen full 
-jedna obietnica ale może dam ci jeden lepszy sen 
+jedna obietnica, zero wrażeń, 
+ale może dam ci jeden lepszy sen 
 
 podzespoly  (11)
 
@@ -81,7 +87,6 @@ dam ci ten lepszy sen (11)
 moj tech - to twoj przyszly sen aye
 moj tech - odda ci moj sen
 dam ci lepszy sen
-
 
  i daje ci tlen
 Daje ci dalszy sen
