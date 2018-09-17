@@ -1,5 +1,5 @@
-# HC_SG01_Digital_Life_Heist (Prod. HRTLS)
-Hitech Crime Single 'Digital Life Heist'
+# MOTHNODE_ Digital Life Heist (Prod. HRTLS)
+Hitech Crime Single 'Digital Life Heist.
 
 # MUSIC VIDEO
 
