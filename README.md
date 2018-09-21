@@ -51,13 +51,15 @@ nie mam danych wpiszę klucz
 
 taki ze mnie skurwiel noob, ja  
 
+---
+
 miły chłopak z wnętrza mówią, już 
 
 chyba z tym skończyłem, to potęga soc-hack  
 
 przecież w końcu spłacisz dług
 
-wtedy dasz mi wszystko
+wtedy dasz mi wszystko (dziś oddasz mi wszystko)
 
 ---------
 
@@ -71,25 +73,27 @@ prę do przodu póki mam na bazie danych ruch -
 
 mam na bazie danych ruch
 
+---
+
 nie ma czasu życia trwonic
 
 to nie bajka to jebana kalka
 
 twoja kopia jest już moja, kradnę zycia standard
 
+---
+
 czelusc hej - nie uciekniesz wiem
 
 mój tech to twój przyszły sen
 
-czipy na padach bez taga napadam
+czipy na padach bez taga napadam, resecik na płycie odbiera mi tlen
 
-resecik na płycie odbiera mi tlen
+serwer nie matka, ta prawda jest twarda, presecik na życie, więc dam ci ten sen
 
-serwer nie matka, ta prawda jest twarda,
+---
 
-presecik na życie, więc dam ci ten sen
-
-dam ci ten sen x 3
+dam ci ten sen, dam ci ten sen, dam ci ten sen
 
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
 (2) żeby cię mieć, 
