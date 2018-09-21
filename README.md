@@ -41,25 +41,24 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 **VERSE 1**
 
-halo - cześć - jestem tutaj kurwa suko żeby cię zjeść  ----
+halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ  ----
 
-kable już podpięte access z pętli mam
+kable już podpięte access z pętli mam, 
 
-ciągnij moją treść ssak
+ciągnij moją treść SSAK
 
-nie mam danych wpiszę klucz
+nie mam danych wpiszę klucz taki ze mnie skurwiel noob, JA  
 
-taki ze mnie skurwiel noob, ja  
+miły chłopak z wnętrza mówią, JUŻ 
 
----
+chyba z tym skończyłem, to potęga SOC-HACK  
 
-miły chłopak z wnętrza mówią, już 
+przecież w końcu spłacisz dług, 
 
-chyba z tym skończyłem, to potęga soc-hack  
+wtedy dasz mi wszystko 
 
-przecież w końcu spłacisz dług
+(złamię szyfr, spłacisz dług, w końcu dasz mi wszystko)
 
-wtedy dasz mi wszystko (dziś oddasz mi wszystko)
 
 ---------
 
@@ -94,6 +93,9 @@ serwer nie matka, ta prawda jest twarda, presecik na życie, więc dam ci ten se
 ---
 
 dam ci ten sen, dam ci ten sen, dam ci ten sen
+
+
+
 
 (1) halo hej cześć jestem tutaj kurwa suko żeby cię zjeść
 (2) żeby cię mieć, 
