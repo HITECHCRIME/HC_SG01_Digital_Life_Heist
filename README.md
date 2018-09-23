@@ -90,6 +90,14 @@ serwer nie matka, ta prawda jest twarda, presecik na życie, więc dam ci ten se
 
 dam ci ten sen, dam ci ten sen, dam ci ten sen
 
+slow skandowanie
+
+PLUGI SĄ... 
+
+CHECK
+
+
+
 
 
 
