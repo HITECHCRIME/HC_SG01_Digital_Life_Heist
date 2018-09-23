@@ -43,11 +43,11 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ
 
-kable już podpięte access z pętli mam, ciągnij moją treść SSAK
+kable już podpięte access z pętli mam, ciągnij moją treść SSAK (tak?)
 
 nie mam danych wpiszę klucz taki ze mnie skurwiel noob, (--JA--)  
 
-miły chłopak z wnętrza mówią, (--JUŻ--) chyba z tym skończyłem, to potęga SOC-HACK  
+miły chłopak z wnętrza mówią, (--JUŻ--) chyba z tym skończyłem, to potęga SOC-HACK
 
 przecież w końcu spłacisz DŁUG  
 
