@@ -49,9 +49,9 @@ nie mam danych wpiszę klucz taki ze mnie skurwiel noob, (--JA--)
 
 miły chłopak z wnętrza mówią, (--JUŻ--) chyba z tym skończyłem, to potęga SOC-HACK
 
-przecież w końcu spłacisz DŁUG  
+przecież w końcu spłacisz DŁUG  (przecież dzisiaj spłacisz DŁUG)
 
-- wtedy dasz mi WSZYSTKO 
+- wtedy dasz mi WSZYSTKO (- w końcu dasz mi WSZYSTKO)
 
 (złamię szyfr, wtedy dasz mi wszystko) (spłacisz dług, w końcu dasz mi wszystko)
 
