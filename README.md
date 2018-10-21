@@ -43,7 +43,7 @@ tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ
 
-kable już podpięte access z pętli mam, ciągnij moją treść SSAK (tak?)
+kable już podpięte access z pętli mam, ciągnij moją treść SSAK
 
 nie mam danych wpiszę klucz taki ze mnie skurwiel noob, (--JA--)  
 
@@ -55,9 +55,6 @@ przecież w końcu spłacisz DŁUG  (przecież dzisiaj spłacisz DŁUG)
 
 (złamię szyfr, wtedy dasz mi wszystko) (spłacisz dług, w końcu dasz mi wszystko)
 
-
----------
-
 (dziś mi służ, spłacisz dzisiaj cały dług)
 
 zedrzyj całą warstwę z życia co mnie - wkurwiasz
@@ -68,15 +65,11 @@ prę do przodu póki mam na bazie danych ruch -
 
 mam na bazie danych ruch
 
----
-
 nie ma czasu życia trwonic
 
 to nie bajka to jebana kalka
 
 twoja kopia jest już moja, kradnę zycia standard
-
----
 
 czelusc hej - nie uciekniesz wiem
 
@@ -86,8 +79,6 @@ czipy na padach bez taga napadam, resecik na płycie odbiera mi tlen
 
 serwer nie matka, ta prawda jest twarda, presecik na życie, więc dam ci ten sen
 
----
-
 dam ci ten sen, dam ci ten sen, dam ci ten sen
 
 slow skandowanie
@@ -96,8 +87,17 @@ PLUGI SĄ...
 
 CHECK
 
+**CHORUS**
 
+nadlatuję z duchem czasu
 
+aye aye aye aye to jest digital life heist (ou) 
+
+digital life heist (ej)
+
+privkey na blacie, numer swój odsłoń, (10)
+
+tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 
 
