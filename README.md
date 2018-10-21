@@ -28,48 +28,28 @@ come on HRTLSZ
 ---
 
 **CHORUS**
-
 nadlatuję z duchem czasu
-
 aye aye aye aye to jest digital life heist (ou) 
-
 digital life heist (ej)
-
 privkey na blacie, numer swój odsłoń, (10)
-
 tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 **VERSE 1**
-
-halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ
-
+halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ --
 kable już podpięte access z pętli mam, ciągnij moją treść SSAK
-
-nie mam danych wpiszę klucz taki ze mnie skurwiel noob, (--JA--)  
-
-miły chłopak z wnętrza mówią, (--JUŻ--) chyba z tym skończyłem, to potęga SOC-HACK
-
-przecież w końcu spłacisz DŁUG  (przecież dzisiaj spłacisz DŁUG)
-
-- wtedy dasz mi WSZYSTKO (- w końcu dasz mi WSZYSTKO)
+nie mam danych wpiszę klucz taki ze mnie skurwiel noob, JA  
+miły chłopak z wnętrza mówią JUŻ chyba z tym skończyłem, to potęga SOC-HACK
+przecież w końcu (dzisiaj) spłacisz DŁUG, wtedy dasz mi WSZYSTKO (- w końcu dasz mi WSZYSTKO)
 
 (złamię szyfr, wtedy dasz mi wszystko) (spłacisz dług, w końcu dasz mi wszystko)
 
 (dziś mi służ, spłacisz dzisiaj cały dług)
 
-zedrzyj całą warstwę z życia co mnie - wkurwiasz
+zedrzyj całą warstwę z życia co mnie wkurwia, default już mnie nie pobudza aye 
+prę do przodu póki mam na bazie danych ruch, mam na bazie danych ruch
 
-default już mnie nie pobudza aye - 
-
-prę do przodu póki mam na bazie danych ruch - 
-
-mam na bazie danych ruch
-
-nie ma czasu życia trwonic
-
-to nie bajka to jebana kalka
-
-twoja kopia jest już moja, kradnę zycia standard
+nie ma czasu życia trwonic to nie bajka to jebana kalka
+wasza kopia jest już moja, kradnę zycia standard
 
 czelusc hej - nie uciekniesz wiem
 
