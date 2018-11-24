@@ -35,8 +35,8 @@ privkey na blacie, numer swój odsłoń, (10)
 tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
 
 **VERSE 1**
-halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ --
-kable już podpięte access z pętli mam, ciągnij moją treść SSAK
+15 halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ -- bez sumienia, bez wątpienia jestem tutaj żeby cię zjeść
+kable już podpięte, access z pętli mam, ciągnij moją treść SSAK
 nie mam danych wpiszę klucz taki ze mnie skurwiel noob, JA  
 miły chłopak z wnętrza mówią JUŻ chyba z tym skończyłem, to potęga SOC-HACK
 przecież w końcu (dzisiaj) spłacisz DŁUG, wtedy dasz mi WSZYSTKO (- w końcu dasz mi WSZYSTKO)
