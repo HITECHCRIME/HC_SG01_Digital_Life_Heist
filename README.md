@@ -1,6 +1,8 @@
 # MOTHNODE_ Digital Life Heist (Prod. HRTLS)
 Hitech Crime Single 'Digital Life Heist.
 
+Ominous, futuristic, glitchy, noisy, build up and big drop.
+
 # MUSIC VIDEO
 
 Digital life backup bank robbery.
@@ -11,6 +13,8 @@ INTRO
 
 Alarm
 
+"What you have to understand is that high tech low life doesn't come from nowhere."
+
 hitech crime detected 
 
 / glass breaks / feet thudding /
@@ -19,12 +23,25 @@ sir we got a data breach someone's in our system
 
 shut it down shut it down now
 
+gunshots (crew breaks into a building, sets up equipment).
+
+crew discussion
+
+"we got it, we're in" "pass the fucking datacore"
+
 mothnode access granted
 
 raz raz raz raz jedziemy z tym koksem yo
 
+area clear
+
 come on HRTLSZ
 
+---
+
+when drop comes giant doors explode behind me, then slow mo of moving through the dust and when the rap comes in I move quickly while moving my hands through the smoke. drives from the vault and server racks or wherever the concept of "digital life bank" resides.
+
+MAIN SONG
 ---
 
 **CHORUS**
