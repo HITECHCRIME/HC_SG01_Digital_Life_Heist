@@ -214,6 +214,8 @@ high tech low life
 area clear, please call your local authority
 ---
 
+egzorcyzuj swoje demony poprzez abstrakt
+exorcise your daemons through the abstract
 
 No to zróbmy sobie takie wejście smoka
 W wirtualu przejdzie, nie przejdzie, no co tam
