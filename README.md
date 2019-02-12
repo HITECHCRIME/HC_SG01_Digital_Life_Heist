@@ -259,3 +259,9 @@ nie bij nam fazy
 dawaj browara
 to moja rodzina,
 sekta sekta sekta
+
+dźwigaru losu już nie skierujesz
+wiem że coś znowu knujesz
+mityczne ekrany, złoto wszechświata
+który nie jest eterem, a jednak się zapadł
+przyszłość tutaj była na raz, ale ten moment w końcu jest nasz
