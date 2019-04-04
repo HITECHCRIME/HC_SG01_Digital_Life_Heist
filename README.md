@@ -78,6 +78,11 @@ serwer nie matka, ta prawda jest twarda, presecik na życie, więc dam ci ten se
 
 dam ci ten sen, dam ci ten sen, dam ci ten sen
 
+mój tech to twój przyszły sen
+czipy na padach bez taga napadam, resecik na płycie odbiera mi tlen
+serwer nie matka, ta prawda jest twarda, presecik na życie, więc dam ci ten sen
+dam ci ten sen, dam ci ten sen, dam ci ten sen
+
 slow skandowanie
 
 PLUGI SĄ... 
