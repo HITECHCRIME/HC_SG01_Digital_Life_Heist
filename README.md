@@ -8,7 +8,7 @@ Ominous, futuristic, glitchy, noisy, build up and big drop.
 Digital life backup bank robbery.
 
 # LYRICS
-
+```
 INTRO
 
 Alarm
@@ -264,3 +264,4 @@ wiem że coś znowu knujesz
 mityczne ekrany, złoto wszechświata
 który nie jest eterem, a jednak się zapadł
 przyszłość tutaj była na raz, ale ten moment w końcu jest nasz
+```
