@@ -1,3 +1,5 @@
+![](dlh_single_cover.png)
+
 # MOTHNODE_ Digital Life Heist (Prod. HRTLS)
 Hitech Crime Single 'Digital Life Heist.
 
