@@ -42,30 +42,33 @@ MAIN SONG
 
 **CHORUS**
 nadlatuję z duchem czasu
-aye aye aye aye to jest digital life heist (ou) 
-digital life heist (ej)
-privkey na blacie, numer swój odsłoń, (10)
-tyle hashów na kasę, a nie zmienię cię w cyfrę (15)
+aye aye aye aye to jest digital life heist ou
+life heist - digital life heist ej
+privkey na blacie, numer swój odsłoń
+tyle hashów na kasę, a nie zmienię cię w cyfrę
 
 **VERSE 1**
-15 halo - cześć - jestem tutaj kurwa suko żeby cię ZJEŚĆ -- bez sumienia, bez wątpienia jestem tutaj żeby cię zjeść
-kable już podpięte, access z pętli mam, ciągnij moją treść SSAK
-nie mam danych wpiszę klucz taki ze mnie skurwiel noob, JA  
-miły chłopak z wnętrza mówią JUŻ chyba z tym skończyłem, to potęga SOC-HACK
-przecież w końcu (dzisiaj) spłacisz DŁUG, wtedy dasz mi WSZYSTKO (- w końcu dasz mi WSZYSTKO)
+halo cześć jestem tutaj kurwa suko żeby cię ZJEŚĆ       /// bez sumienia, bez wątpienia jestem tutaj żeby cię zjeść
+kable już podpięte, access z pętli mam 
+ciągnij moją treść ssak
+nie mam danych wpiszę klucz 
+taki ze mnie skurwiel noob, ja  
+miły chłopak z wnętrza mówią 
+już chyba z tym skończyłem, to potęga sochack
+przecież w końcu spłacisz dług, wtedy dasz mi wszystko
 
 (złamię szyfr, wtedy dasz mi wszystko) (spłacisz dług, w końcu dasz mi wszystko)
 
 (dziś mi służ, spłacisz dzisiaj cały dług)
 
-zedrzyj całą warstwę z życia co mnie wkurwia, default już mnie nie pobudza aye 
+zedrzyj całą warstwę z życia co mnie wkurwia
+default już mnie nie pobudza aye 
 prę do przodu póki mam na bazie danych ruch, mam na bazie danych ruch
 
 nie ma czasu życia trwonic to nie bajka to jebana kalka
 wasza kopia jest już moja, kradnę zycia standard
 
 czelusc hej - nie uciekniesz wiem
-
 mój tech to twój przyszły sen
 
 czipy na padach bez taga napadam, resecik na płycie odbiera mi tlen
@@ -150,10 +153,6 @@ moj tech, twoj przyszly sen 7
 robię snatch 
 daje ci ten tlen 8
 
-
-
-
-
 czuj się zagrożona żarem 8
 
 Daje ci sen, daje ci lepszy sen
@@ -162,10 +161,6 @@ pass na sześć,
 Nie uciekniesz ja to wiem 7
 
 **[VERSE 1]** (slow skandujący scream) 
-
-
-
-
 
 
 
